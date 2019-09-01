@@ -1,1 +1,0 @@
-# skybonds-test-task-2
